@@ -1,0 +1,1 @@
+# yuichiinami.github.io
